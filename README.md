@@ -1,2 +1,0 @@
-# Ghostmarket.dev
-Real Ghostmarket
